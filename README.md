@@ -1,2 +1,0 @@
-# Sama
-Sat
